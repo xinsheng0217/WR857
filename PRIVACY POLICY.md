@@ -1,4 +1,4 @@
-                               											PRIVACY POLICY
+                      
 What information do we collect?
 
 When ordering or registering our application under appropriate circumstances, you may be asked to enter: email address.
